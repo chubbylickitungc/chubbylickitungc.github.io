@@ -1,3 +1,3 @@
-Practice your typing skills!
+Become a typing pro
 
 
