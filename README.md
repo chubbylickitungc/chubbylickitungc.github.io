@@ -1,2 +1,4 @@
 # chubbylickitungc.github.io
-typing
+Practice your typing skills!
+
+
